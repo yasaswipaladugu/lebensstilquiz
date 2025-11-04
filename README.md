@@ -1,2 +1,2 @@
 # lebensstilquiz
-Atefe, Razieh, Yasaswi
+Atefe, Razieh, Yasaswi, Katharina, Mahdi
